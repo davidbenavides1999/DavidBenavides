@@ -1,7 +1,7 @@
 # David Benavides
 ## My personal repository.
 
-Hello, my name is David Benavides, I'm 24 years old, I'm a professional in statistics from Santo Tomas University and I'm from Colombia. 😀
+Hello, my name is David Benavides, I'm 24 years old, I'm a professional in statistics from Santo Tomas University and I'm from Colombia 🇨🇴. 😀
 
 ## What are you interested in learning?
 
