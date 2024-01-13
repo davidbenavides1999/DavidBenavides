@@ -13,3 +13,4 @@ I am currently working in an auditing and consulting firm, where I hold the posi
 
 ## What's your favorite hobby?
 
+My hobbies are listening to music, hiking, traveling, dancing and recently functional training. 
